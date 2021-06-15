@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @roger156
+- 👋 Hi, I’m @cheryl156
 - 👀 I’m interested in ...crypto currency trading ,online puzzle games,and web design also learning new hobbies and singing.
 - 🌱 I’m currently learning ...to do all the above mentioned.
 - 💞️ I’m looking to collaborate on ...how to make online websites
